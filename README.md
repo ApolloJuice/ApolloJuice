@@ -9,7 +9,7 @@ HI??? im apollo idk how to use github cut me some slack
    - I LOVE INTERACTION! IM OK W KISSES AND BOOPS (NOT EXCESSIVE THOUGH ITS ANNOYING)
       
       INT!!
-       - PART 4 SKINS ILY
+       - PART 4 FANS ILY
        - ACE ATTORNEY FANS PLEAASE
        - PROFFESSOR LAYTON FANS.. WHOEVERS OUT THERE STILL
        - POKEMON FANS!!
