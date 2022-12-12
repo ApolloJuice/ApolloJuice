@@ -1,16 +1,21 @@
-### Hi there 👋
+UHH, INT AND DNI
 
-<!--
-**ApolloJuice/ApolloJuice** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+HI??? im apollo idk how to use github cut me some slack
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  BYI 
+   - im stupid, i dont really get jokes immediately sorry
+   - PLLLLLEEAEASSEE dont misgender please please plea
+   - i do tend to ramble (specifically about ocs......... sorry)
+   - I LOVE INTERACTION! IM OK W KISSES AND BOOPS (NOT EXCESSIVE THOUGH ITS ANNOYING)
+      
+      INT!!
+       - PART 4 SKINS ILY
+       - ACE ATTORNEY FANS PLEAASE
+       - PROFFESSOR LAYTON FANS.. WHOEVERS OUT THERE STILL
+       - POKEMON FANS!!
+       - PEOPLE W JOJO OCS... I LOVE HEARING ABOUT THEM
+       
+        DNI!!
+        -  OVER 18
+        -  PROSHIPPERS!! GO AWAY YOURE SO ANNOYI
+        -  BASIC DNI, GO AWAY IF YOURE A BIGOT LMAO
