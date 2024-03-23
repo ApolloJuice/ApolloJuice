@@ -6,7 +6,6 @@ HI??? im apollo idk how to use github cut me some slack
    - im stupid, i dont really get jokes immediately sorry
    - PLLLLLEEAEASSEE dont misgender please please plea
    - i do tend to ramble (specifically about ocs......... sorry)
-   - I LOVE INTERACTION! IM OK W KISSES AND BOOPS (NOT EXCESSIVE THOUGH ITS ANNOYING)
       
       INT!!
        - PART 4 FANS ILY
@@ -14,8 +13,9 @@ HI??? im apollo idk how to use github cut me some slack
        - PROFFESSOR LAYTON FANS.. WHOEVERS OUT THERE STILL
        - POKEMON FANS!!
        - PEOPLE W JOJO OCS... I LOVE HEARING ABOUT THEM
+    
+
+Random shit
+- play xenoblade [img]https://i.redd.it/thdw4vhpfii91.gif[/img]
        
-        DNI!!
-        -  OVER 18
-        -  PROSHIPPERS!! GO AWAY YOURE SO ANNOYI
-        -  BASIC DNI, GO AWAY IF YOURE A BIGOT LMAO
+  
