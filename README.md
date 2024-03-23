@@ -1,4 +1,4 @@
-UHH, INT AND DNI
+UHH, INT
 
 HI??? im apollo idk how to use github cut me some slack
 
@@ -16,6 +16,6 @@ HI??? im apollo idk how to use github cut me some slack
     
 
 Random shit
-- play xenoblade [img]https://i.redd.it/thdw4vhpfii91.gif[/img]
+- play xenoblade
        
   
